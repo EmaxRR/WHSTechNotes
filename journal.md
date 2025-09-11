@@ -9,6 +9,8 @@ Maybe i dont know but if you press shift + windows + s snipping tool!
 If you know that treehouse of horror is At there 35-36 right now JUST A
 FACT
 
-# September 9, 2025
+# September 9-10, 2025
 Animation Domination (FOX) that was good but i want to be family guy, bob's burgers, American Dad!, tHE Cleveland Show, all of them D O W N F A L L ):
 17 38 
+# September 11, 2025 (9/11 day)
+9/11 Day is here respect The People Who died (Never forget)

@@ -12,5 +12,10 @@ FACT
 # September 9-10, 2025
 Animation Domination (FOX) that was good but i want to be family guy, bob's burgers, American Dad!, tHE Cleveland Show, all of them D O W N F A L L ):
 17 38 
+
 # September 11, 2025 (9/11 day)
 9/11 Day is here respect The People Who died (Never forget)
+
+# September 15, 2025
+I DEADBUTT FORGOT IT WAS TESTING DAY GOD DANG IT
+But i hope theres tomorrow.

@@ -20,5 +20,10 @@ Animation Domination (FOX) that was good but i want to be family guy, bob's burg
 I DEADBUTT FORGOT IT WAS TESTING DAY GOD DANG IT
 But i hope theres tomorrow.
 
-# September 22, 2025 (ThinkStation)
+# September 22, 2025 CER (ThinkStation)
 Seth MacFarlane That's It GoodBye now
+
+CER
+C- No cause With roblox getting sue and stuff by law by mike.
+E- Roblox was sueing one youtuber for arresting the PDF flies and law by mike want to sue roblox in progress so its not worth it.
+R- Cuase of dating stuff going on.

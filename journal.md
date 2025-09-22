@@ -19,3 +19,6 @@ Animation Domination (FOX) that was good but i want to be family guy, bob's burg
 # September 15, 2025
 I DEADBUTT FORGOT IT WAS TESTING DAY GOD DANG IT
 But i hope theres tomorrow.
+
+# September 22, 2025 (ThinkStation)
+Seth MacFarlane That's It GoodBye now

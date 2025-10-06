@@ -27,3 +27,11 @@ CER
 C- No cause With roblox getting sue and stuff by law by mike.
 E- Roblox was sueing one youtuber for arresting the PDF flies and law by mike want to sue roblox in progress so its not worth it.
 R- Cuase of dating stuff going on.
+
+# October 6, 2025 (been for a while)
+Evert Ever School / Fundamentals of Computer Science / code / 5
+If i was in chrager of my school Ai will be lowered down so it will be answering thew questions but in the answers
+And the website that is a scam or no school P word will be blocked and phones are allow in break,lunch times but not in classes.
+it will be high school to btw
+i ran out of i ideas so i'm just gonna type randomly for no reason at all and i doing it right now and i keep keep going and can even stop and now i stoped see ya
+

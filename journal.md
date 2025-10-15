@@ -37,3 +37,5 @@ i ran out of i ideas so i'm just gonna type randomly for no reason at all and i 
 
 # A GAME MADE MY AI (:< (October 15, 2025)
 https://you-will-not-survive-hshedbe73.my.canva.site/
+
+https://you-will-not-survive-hshedbe73.my.canva.site/copy-of-seth-macfarlane-show-movie-quiz-excluding-the-orville

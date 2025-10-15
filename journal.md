@@ -35,3 +35,5 @@ And the website that is a scam or no school P word will be blocked and phones ar
 it will be high school to btw
 i ran out of i ideas so i'm just gonna type randomly for no reason at all and i doing it right now and i keep keep going and can even stop and now i stoped see ya
 
+# A GAME MADE MY AI (:< (October 15, 2025)
+https://you-will-not-survive-hshedbe73.my.canva.site/

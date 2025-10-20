@@ -39,3 +39,10 @@ i ran out of i ideas so i'm just gonna type randomly for no reason at all and i 
 https://you-will-not-survive-hshedbe73.my.canva.site/
 
 https://you-will-not-survive-hshedbe73.my.canva.site/copy-of-seth-macfarlane-show-movie-quiz-excluding-the-orville
+
+# October 20, 2025
+| Name     | Class | Seat |
+| :------- | :---- | :--- |
+| Franklin |  2     | 91A     |
+| Hardeep  |   3    |     61F |
+| Marla    |    1   |    35B  |

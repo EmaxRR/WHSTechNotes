@@ -41,8 +41,17 @@ https://you-will-not-survive-hshedbe73.my.canva.site/
 https://you-will-not-survive-hshedbe73.my.canva.site/copy-of-seth-macfarlane-show-movie-quiz-excluding-the-orville
 
 # October 20, 2025
+
 | Name     | Class | Seat |
 | :------- | :---- | :--- |
 | Franklin |  2     | 91A     |
 | Hardeep  |   3    |     61F |
 | Marla    |    1   |    35B  |
+
+# October 27, 2025
+
+| Name     | Class | Seat |
+| :------- | :---- | :--- |
+| I |  0    | 200000    |
+| Got  |   0  |     r kelly |
+| Nothing  |    6 7   |    jay z in hes elevator  |

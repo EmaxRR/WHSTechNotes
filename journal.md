@@ -61,3 +61,6 @@ those are the longest words ever made and you have proof this is the long essay
 
 # December 1, 2025
 Here: https://www.google.com/search?surl=1&q=%22i+have+no+idea%22&sca_esv=f34621fe0ac54d90&rlz=1C1GCHA_enUS1185US1185&udm=2&biw=2048&bih=1026&ei=OMktabHxJ46sqtsPwJvs2QE&ved=0ahUKEwix7ZKd7pyRAxUOlmoFHcANOxsQ4dUDCBI&uact=5&oq=%22i+have+no+idea%22&gs_lp=Egtnd3Mtd2l6LWltZyIQImkgaGF2ZSBubyBpZGVhIjIKEAAYgAQYQxiKBTIKEAAYgAQYQxiKBTIGEAAYBxgeMgoQABiABBhDGIoFMgoQABiABBhDGIoFMgoQABiABBhDGIoFMgoQABiABBhDGIoFMgUQABiABDIFEAAYgAQyBRAAGIAESK4uUMYJWO4rcAF4AJABAJgBTKABuAGqAQEzuAEDyAEA-AEBmAIEoALDAZgDAIgGAZIHATSgB_sTsgcBM7gHvwHCBwMwLjTIBwg&sclient=gws-wiz-img&safe=active&ssui=on
+
+# December, 15 2025 (Bday)
+new desk, new phone new, And new stuff

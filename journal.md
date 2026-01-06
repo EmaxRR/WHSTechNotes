@@ -64,3 +64,6 @@ Here: https://www.google.com/search?surl=1&q=%22i+have+no+idea%22&sca_esv=f34621
 
 # December, 15 2025 (Bday)
 new desk, new phone new, And new stuff
+
+# January, 6 2025
+got a new pc and i just played gta 5 on the break.

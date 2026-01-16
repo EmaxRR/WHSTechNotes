@@ -66,4 +66,5 @@ Here: https://www.google.com/search?surl=1&q=%22i+have+no+idea%22&sca_esv=f34621
 new desk, new phone new, And new stuff
 
 # January, 6 2025
-got a new pc and i just played gta 5 on the break.
+got a new pc and i just played gta 5 on the break and played on my phone and played to my speaker cuzz i was running out of idea's so here you go
+(also is january 16 now so see ya).

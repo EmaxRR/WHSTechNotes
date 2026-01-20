@@ -3,5 +3,5 @@ I'm like "Hey, what's up? Hello" (Ayy) Seen yo pretty ass soon as you came in th
 
 and the first Repository btw
 
-#$15,000,000 dollars wasted
+# $15,000,000 dollars wasted
 coming 2029

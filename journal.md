@@ -68,3 +68,10 @@ new desk, new phone new, And new stuff
 # January 6, 2026
 got a new pc and i just played gta 5 on the break and played on my phone and played to my speaker cuzz i was running out of idea's so here you go
 (also is january 16 now so see ya).
+
+# January 20, 2026 (CER)
+Claim: The people use technology for Millions of years(that's what it said on google) and help people know another languages to help and learn.
+
+Evidence: MLK require to take justice and fairness to the ("I Have A Dream") speech that make people change their minds
+
+Reasoning: Read two online sources about MLK, noted key words/phrases in a two-column Word table. and Created a shaped word cloud of MLK's "I Have a Dream" speech to analyze key themes.

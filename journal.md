@@ -75,3 +75,17 @@ Claim: The people use technology for Millions of years(that's what it said on go
 Evidence: MLK require to take justice and fairness to the ("I Have A Dream") speech that make people change their minds
 
 Reasoning: Read two online sources about MLK, noted key words/phrases in a two-column Word table. and Created a shaped word cloud of MLK's "I Have a Dream" speech to analyze key themes.
+
+# January 29, 2026
+1. It went sleeply
+2. yes it was very very challenging
+
+3. i hve no ide but it will be a yes for now
+
+4. The test I took was 2 hours and I feel sleeply about my performance because
+
+
+
+</table>
+[APPLE BED]
+NOW FOR $1299.99

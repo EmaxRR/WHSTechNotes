@@ -95,3 +95,10 @@ NOW FOR $1299.99
 
 2.create sensory overload, forcing the brain to split its limited mental bandwidth
 
+# February 11, 2026
+1. I hread it was bad (even the halftime show)
+
+2. I did not see the super blow
+
+3. (Did not see it so imma just gonna skip.)
+

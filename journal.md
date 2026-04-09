@@ -102,3 +102,20 @@ NOW FOR $1299.99
 
 3. (Did not see it so imma just gonna skip.)
 
+# April 9, 2026 (a month here)
+
+Claim: No jobs no money and can't get things when AI is doing the work for them but just a little bit Ai (people get jobs back).
+
+Evidence: when Ai was there in 2023 it was help homework and eassys (ain't that bad) but the jobs they get (there's a a little bit Ai in the work or jobs?)
+is cause people it get fired, just don't put to much Ai in the job ok.
+there is no reasoning sorry........
+
+<summary>right here</summary>
+
+### Buy the 3499.99 apple vision pro 2
+
+its great, waste all your money
+
+and the battery goes to 100 to 0 in 12 minutes
+
+

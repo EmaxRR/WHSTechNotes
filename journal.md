@@ -119,3 +119,14 @@ its great, waste all your money
 and the battery goes to 100 to 0 in 12 minutes
 
 
+# April 23, 2026
+I mean There will be no copyright (you get paid when you use the song (tv show, Movies), But the script or a music video does have extra sound effect and footage (Cuzz why not it have some story write in to it.
+
+# Claim:
+Ai can be written as a song but people who can sing rap (or do bars) can make some music. so you can't replace popular people (ex:Ice Cube, Outkast, Adele, Snoop Dogg, Ac/Dc
+
+# Evidence:
+I Dont Have One
+
+# Reasoning:
+"Should there be limits on how AI is used in music or media?" it can be short it can be low quality it can not have realistic videos you can only use it only on 6 days.

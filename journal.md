@@ -35,12 +35,12 @@ And the website that is a scam or no school P word will be blocked and phones ar
 it will be high school to btw
 i ran out of i ideas so i'm just gonna type randomly for no reason at all and i doing it right now and i keep keep going and can even stop and now i stoped see ya
 
-# A GAME MADE MY AI (:< (October 15, 2025)
+# A GAME MADE MY AI (:< (October 15, 2025) (this one is AI)
 https://you-will-not-survive-hshedbe73.my.canva.site/
 
 https://you-will-not-survive-hshedbe73.my.canva.site/copy-of-seth-macfarlane-show-movie-quiz-excluding-the-orville
 
-# October 20, 2025
+# October 20, 2025 [the longest words where copyed.]
 
 | Name     | Class | Seat |
 | :------- | :---- | :--- |
@@ -86,9 +86,9 @@ Reasoning: Read two online sources about MLK, noted key words/phrases in a two-c
 
 
 
-</table>
+[</table>]
 [APPLE BED]
-NOW FOR $1299.99
+[NOW FOR $1299.99]
 
 # february 2, 2026
 1.To prevent the spread of contagious diseases, maintain a healthy, respectful atmosphere, and foster positive social and professional relationships
@@ -110,13 +110,13 @@ Evidence: when Ai was there in 2023 it was help homework and eassys (ain't that 
 is cause people it get fired, just don't put to much Ai in the job ok.
 there is no reasoning sorry........
 
-<summary>right here</summary>
+[<summary>right here</summary>]
 
-### Buy the 3499.99 apple vision pro 2
+[### Buy the 3499.99 apple vision pro 2]
 
-its great, waste all your money
+[its great, waste all your money]
 
-and the battery goes to 100 to 0 in 12 minutes
+[and the battery goes to 100 to 0 in 12 minutes[
 
 
 # April 23, 2026
